@@ -52,7 +52,7 @@
 
 ### 专栏
 
-- [**沉醉中的人不要被进口贸易、红酒、奶粉欺骗**](<[https://www.zhihu.com/column/c_1344988932996628480](https://www.zhihu.com/column/c_1344988932996628480)>)
+- [**沉醉中的人不要被进口贸易、红酒、奶粉欺骗**](https://www.zhihu.com/column/c_1344988932996628480)
 - [**2021 年打着创业旗号做轻医美/NMN/红酒/精油进口贸易的 FC/SG 亮碧思传销诈骗集团有哪些？**](https://www.zhihu.com/question/466475555/answer/1956707692)
 
 ### 组织特点
@@ -71,6 +71,8 @@
 
 招商会, 沙龙, 展会, 创业,考察, 读书分享，商务考察， 轻资产创业
 
+...
+
 ## 涉略书籍
 
 - 管道的故事
@@ -79,6 +81,7 @@
 - 穷爸爸富爸爸
 - 人性的弱点
 - 消费商
+- ...
 
 ### 产品
 
@@ -93,6 +96,8 @@
 健康营养产品：inovital；
 
 个人护理产品：Auziere
+
+...
 
 ### 话术收集
 
@@ -116,7 +121,8 @@
 
 <details>
   <summary>
-
+  展开下图所示:
+  </summary>
 ![Untitled](./assets/Untitled%2010.png)
 
 ![Untitled](./assets/Untitled%2011.png)
@@ -145,5 +151,4 @@
 
 ![Untitled](./assets/Untitled%2024.png)
 
-  </summary>
 </detail>
