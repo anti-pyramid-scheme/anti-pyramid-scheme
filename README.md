@@ -22,11 +22,11 @@
 
 **视频**
 
-- [https://fcx-dchl.com/wp-content/uploads/2021/12/微博、秒拍、绿洲、小咖秀视频图片解析下载-保存视频图片到电脑、手机.mp4](https://fcx-dchl.com/wp-content/uploads/2021/12/微博、秒拍、绿洲、小咖秀视频图片解析下载-保存视频图片到电脑、手机.mp4)
+- [财经观察家](https://fcx-dchl.com/wp-content/uploads/2021/12/微博、秒拍、绿洲、小咖秀视频图片解析下载-保存视频图片到电脑、手机.mp4)
 
-- [https://fcx-dchl.com/wp-content/uploads/2020/08/VIDEO_0819220323.mp4](https://fcx-dchl.com/wp-content/uploads/2020/08/VIDEO_0819220323.mp4)
+- [CCTV 财经 2](https://fcx-dchl.com/wp-content/uploads/2020/08/VIDEO_0819220323.mp4)
 
-- [https://www.gdtv.cn/tv/f0e559a12ee5208ae12d4c385aeb174c](https://www.gdtv.cn/tv/f0e559a12ee5208ae12d4c385aeb174c)
+- [荔枝网-广东网络广播电视台](https://www.gdtv.cn/tv/f0e559a12ee5208ae12d4c385aeb174c)
 
 **文章**
 
