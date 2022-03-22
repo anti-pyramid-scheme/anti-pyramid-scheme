@@ -40,7 +40,7 @@
 
 ### 被骗经历
 
-- [**广深新套路：为香港传销拉人头，她们不惜**](https://www.zhihu.com/collection/768109727)
+- [**广深新套路：为香港传销拉人头，她们不惜**](https://zhuanlan.zhihu.com/p/40485437)
 - [**记一件差点进传销的事**](https://zhuanlan.zhihu.com/p/353635070)
 - [**广州传销 深圳传销 广州亮碧思 SG FC 珠江新城传销 进出口贸易 轻医美 奶粉 红酒行业 轻资产创业 ⚠️⚠️⚠️⚠️**](https://zhuanlan.zhihu.com/p/457742730)
 - [**亮碧思被传销之路-广州 SG 团队**](https://dchl.xyz/topic/index?id=54)
