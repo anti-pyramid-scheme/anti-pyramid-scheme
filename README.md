@@ -156,7 +156,7 @@
 
 ![Untitled](./assets/Untitled%2024.png)
 
-</detail>
+</details>
 
 ## 初衷
 
