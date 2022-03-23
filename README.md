@@ -40,17 +40,26 @@
 
 ### 被骗经历
 
+#### B 站
+
+- [**死里逃生！我是如何被好朋友一步步骗进传销的？（前情提要篇）**](https://www.bilibili.com/video/av61812292)
+- [**我被三年室友骗进传销了，好多 20 岁大学生，还有异性陪玩？**](https://www.bilibili.com/video/BV1QU4y1E7tQ)
+- [**真正的传销到底有多可怕，测试一下你能坚持多久**](https://www.bilibili.com/video/BV1PE411h7b4?spm_id_from=333.337.search-card.all.click)
+
+#### 知乎
+
 - [**广深新套路：为香港传销拉人头，她们不惜**](https://zhuanlan.zhihu.com/p/40485437)
 - [**记一件差点进传销的事**](https://zhuanlan.zhihu.com/p/353635070)
 - [**广州传销 深圳传销 广州亮碧思 SG FC 珠江新城传销 进出口贸易 轻医美 奶粉 红酒行业 轻资产创业 ⚠️⚠️⚠️⚠️**](https://zhuanlan.zhihu.com/p/457742730)
-- [**亮碧思被传销之路-广州 SG 团队**](https://dchl.xyz/topic/index?id=54)
-
-### 置顶文章
 
 - [警惕这种香港进口传销](https://zhuanlan.zhihu.com/p/36252524)
 - [香港亮碧思(诗贝朗/FRANCINE)传销人员照片以及话术。](https://zhuanlan.zhihu.com/p/39692841)
 - [我在香港亮碧思(诗贝朗/FRANCINE)洗脑非人的几天](https://zhuanlan.zhihu.com/p/40330860)
 - [亮碧思](https://zhuanlan.zhihu.com/p/400014193)
+
+#### 其他
+
+- [**亮碧思被传销之路-广州 SG 团队**](https://dchl.xyz/topic/index?id=54)
 
 ### 专栏
 
