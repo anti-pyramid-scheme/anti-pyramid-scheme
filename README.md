@@ -169,3 +169,5 @@
 5. .... 洗脑之后，有些人信了，继续交钱，陷的更深了,有些人醒悟了, 意识到这个骗局就想办法脱离了
 
 我之前其实也粗略已经了解到传销模式，也自以为是不会进传销。没想到是传销组织也一直在进化。演变成各种形式，诱导你进入。它们已经瞄准 IT 从业人员。所以建了一个仓库，如果早点接触到这个传销套路，可能很早就意识到这是传销了。希望能给更多 IT，编程行业的朋友早点知道，避免踏入这个坑，有相关经历的朋友也可以提 pr, issue 对传销组织进行曝光。
+
+[![Page Views Count](https://badges.toozhao.com/badges/01FYTB9A8P0GP52YBJ5HQ31DCC/green.svg)](https://badges.toozhao.com/stats/01FYTB9A8P0GP52YBJ5HQ31DCC "Get your own page views count badge on badges.toozhao.com")
